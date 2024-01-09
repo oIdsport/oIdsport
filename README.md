@@ -8,8 +8,7 @@ my current hyperfixations are jujutsu kaisen, fortnite, splatoon, fnaf/dsaf and 
 
 　🌠 some of my socials
 
-disc: pawsquid 　　tiktok: vampvixxy
-epic games: pawsquid
+disc: pawsquid 　　　tiktok: vampvixxy　　　epic games: pawsquid
 
 let me know if you wanna add me in any of these ^_^
 <!---
