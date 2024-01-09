@@ -5,6 +5,9 @@ stuff for ponytown
 though if you wanna say something nice about my skins on pt i just rather you put it in my guestbook ^_^ 
 
 my current hyperfixations are jujutsu kaisen, fortnite, splatoon, fnaf/dsaf and trolls! if we share any don't be afraid to interact
+
+　🌠 some of my socials
+
 disc: pawsquid 　　tiktok: vampvixxy
 epic games: pawsquid
 
