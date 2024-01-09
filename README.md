@@ -5,6 +5,10 @@ stuff for ponytown
 though if you wanna say something nice about my skins on pt i just rather you put it in my guestbook ^_^ 
 
 my current hyperfixations are jujutsu kaisen, fortnite, splatoon, fnaf/dsaf and trolls! if we share any don't be afraid to interact
+disc: pawsquid 　　tiktok: vampvixxy
+epic games: pawsquid
+
+let me know if you wanna add me in any of these ^_^
 <!---
 oIdsport/oIdsport is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
