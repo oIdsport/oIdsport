@@ -5,6 +5,9 @@ stuff for ponytown
 
 my current hyperfixations are jujutsu kaisen, fortnite, splatoon, fnaf/dsaf and trolls! if we share any don't be afraid to interact.　i might seem a little dry, i apologize in advance idk how to talk to people
 
+make sure to check my rentry too :-) !
+https://rentry.co/wet-umbrella
+
 <!---
 oIdsport/oIdsport is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
