@@ -1,4 +1,4 @@
-pt info on my rentry - https://rentry.co/wet-umbrella
+rentry - https://rentry.co/hrts4satoru
 
 leave me a note in my guestbook before leaving
 
