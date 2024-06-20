@@ -1,4 +1,4 @@
-rentry - https://rentry.co/hrts4satoru
+i love satoru gojo with all my heart. i wanna kiss his pretty face and hold his hand
 
 
 
