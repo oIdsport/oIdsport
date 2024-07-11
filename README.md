@@ -1,4 +1,5 @@
-i love satoru gojo with all my heart. i wanna kiss his pretty face and hold his hand
+i love satoru gojo with all my heart. i wanna kiss his pretty face and hold his hand, give me back satoru :-(
+ps. i do not follow back unless you're my friend
 
 
 
